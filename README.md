@@ -26,7 +26,7 @@ The El Salvador E-Visa is an excellent option for digital nomads. The applicatio
 simple, and it offers a fast solution for many applicants. 
 Application Process: 
 1. Apply Online: Submit your application through the official website 
-www.evisaelsalvador.com. 
+https://www.evisaelsalvador.com. 
 2. Prepare Your Documents: Required documents include a valid passport, application 
 form, and proof of travel plans. 
 3. Complete the Application: Generally, you will receive your result within 3–7 business 
@@ -143,7 +143,7 @@ apply:
 Gjirokastra is a UNESCO World Heritage site showcasing Albanian architecture 
 Steps to Apply for an Albanian e-Visa 
 Here’s a straightforward guide to navigating the e-visa application process: 
-1. Visit the Official Website: Go to www.evisasalbania.com to begin your application. 
+1. Visit the Official Website: Go to https://www.evisasalbania.com to begin your application. 
 2. Complete the Application Form: Fill in your personal details accurately. Include 
 information about your stay in Albania and your remote work arrangements. 
 3. Submit Required Documents: Depending on your nationality, you may need to upload 
@@ -156,7 +156,7 @@ Make sure to print it before your trip.
 Migraciony Soluciones is here to assist you in every step of the application process. We provide 
 professional support and guidance to make your experience as seamless as possible. 
 If you're ready to experience Albania while working remotely, don't wait! Head over to 
-www.evisasalbania.com to start your application. 
+https://www.evisasalbania.com to start your application. 
 Tips for a Smooth Transition to Remote Work in Albania 
 Transitioning to a new country comes with challenges, but these tips will help you settle in 
 smoothly: 
@@ -172,7 +172,7 @@ Expanding Your Travel Options: El Salvador e-Visa
 If you’re intrigued by the idea of exploring more than just Albania, consider the possible 
 adventure in Central America! Just as Albania offers splendid opportunities as a remote work 
 destination, El Salvador does too.  
-You can apply for an El Salvador e-visa through our other platform, www.evisaelsalvador.com. 
+You can apply for an El Salvador e-visa through our other platform, https://www.evisaelsalvador.com. 
 This portal provides a similar application process, making it easy for you to avidly expand your 
 horizons. 
 Final Thoughts 
@@ -182,4 +182,4 @@ and a thriving community of fellow nomads, you’ll find that enriching both you
 and personal life is not only achievable but delightful. 
 Whether you’re planning a short stay or an extended adventure, Albania welcomes you to 
 explore everything it offers. Apply for your Albanian e-visa today through 
-www.evisasalbania.com
+https://www.evisasalbania.com
